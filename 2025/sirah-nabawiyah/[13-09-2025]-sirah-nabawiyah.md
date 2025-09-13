@@ -8,7 +8,7 @@ Pemateri: Ustadz Fadlan Fahamsyah
 
 Kitab: 
 
-Link Youtube: []()
+Link Youtube: [https://www.youtube.com/watch?v=cadY1lpnRUE](https://www.youtube.com/watch?v=cadY1lpnRUE)
 
 - Nabi diangkat menjadi Nabi ketika menerima wahyu surat Al Alaq ayat 1,
 dan diangkat menjadi Rasul ketika menerima wahyu surat Al Mudatsir
