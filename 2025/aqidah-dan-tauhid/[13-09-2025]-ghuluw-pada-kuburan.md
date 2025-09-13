@@ -37,3 +37,21 @@ setelah kejadian tersebut, orang itu disomasi.`
     2. aksi yang dilakukan orang tersebut berhak dilakukan oleh ulil amri.
     sehingga ketika ulil amri membiarkan kejadian tersebut, ulil amri
     yang akan menanggung dosa
+- Nabi melarang kuburannya dijadikan sebagai tempat i'ed, yaitu tempat yang
+sengaja dikunjungi orang secara rutin
+- Imam malik berpendapat bahwa orang yang menyengaja safar hanya
+untuk shalat hukumnya makruh, dan makruhnya ulama zaman dahulu adalah
+haram
+- Berkata penulis rahimahullah:
+    - "Mereka menjadikan lilin-lilin di atas kuburan, meletakkan simbol-simbol
+    (bendera) padanya. Mereka terjatuh pada perbuatan orang-orang
+    jahiliyah dahulu dengan memanjatkan hajat permintaan
+    kepada penghuni kubur, sehingga dengannya mereka telah
+    menjadikan hawa nafsu sebagai Tuhan yang ditakuti"
+    - "Iblis pun berhasil menjerumuskan mereka ke dalam jerat-jerat
+    tipuannya bahkan sebagian menjadi pembantu iblis dalam menyesatkan
+    manusia mengajak kepada kesyirikan"
+    - "Maka sungguh sangat besar dosa orang-orang yang membolehkan
+    hal-hal tersebut dan membuat umat ini terjatuh ke dalam kebinasaan.
+    Hanya kepada Allah kami mengadukan kejahilan ini dan
+    beratnya ujian bagi umat ini"
